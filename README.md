@@ -1,1 +1,3 @@
 # Casos Conflictividad Ambiental
+
+Video Podcast: https://uvggt-my.sharepoint.com/:v:/r/personal/lir23669_uvg_edu_gt/Documents/casos_conflictividad_ambiental.mp4?csf=1&web=1&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=t0iBZ1
